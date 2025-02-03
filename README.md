@@ -2,7 +2,7 @@
 - 👀 I’m interested in UX/UI freelance prijects
 - 🌱 I’m currently learning french
 - 💞️ I’m looking to collaborate on fullstack design team
-- 📫 How to reach me throught telegram - Lilu_veronika
+- 📫 How to reach me throught telegram @Lilu_veronika
 - 😄 Pronouns: she
 - ⚡ Fun fact: I'm just fun 
 
